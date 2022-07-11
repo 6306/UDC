@@ -1,3 +1,4 @@
 # Unicorn Delicious Candy
 
-The Official App will go here soon.
+WE'RE NOT DEAD.
+We're just very quite about this.
